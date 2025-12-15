@@ -1,1 +1,0 @@
-# Maxpel-inform-tica
